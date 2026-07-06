@@ -1,4 +1,4 @@
-# 
+# Best geckoterminal sniper bot scripts for Mac OS | Lightweight geckoterminal sniper bot scripts for PC Windows. Featuring time-bandit attacks and back-running strategies — optimized for maximum performance on every platform.
 
 
 
